@@ -7,9 +7,15 @@ In August 2011 Company was founded by Stanford Business School with Anthony sitt
 
 
 The Company has built in place “The SoFi philosophy”
+
 Four Principals
+
 •	Attack debt with a Plan.
+
 •	Always have a safety net.
+
 •	Put your money to work
+
 •	Save for retirement and other Goals
+
 The Finance Company goal is to help individuals with their money, whose products provide tools needed to take control of their financial futures with exclusive member benefits at not cost.
