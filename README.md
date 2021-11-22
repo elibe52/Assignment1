@@ -19,3 +19,14 @@ Four Principals
 •	Save for retirement and other Goals
 
 The Finance Company goal is to help individuals with their money, whose products provide tools needed to take control of their financial futures with exclusive member benefits at not cost.
+The company makes money through securitization, referral fees, interest earned on cash, sweep programs, whole loan sales and a lot more. The buyers in the securitization are institutions as well as other asset managers who buy premium upfront for the potential cash flows from the loan. 
+
+This move enables them access to funds at a very competitive rate, on par with large commercial banks with big balance sheet. SoFi can make money through this because investors trust the quality of their loans.
+
+Their total funding from 2018-2021
+
+•	Revenue $547 Million (2018)
+
+•	Net Income $126 Million (2018)
+
+•	Total Asset $7.653 Billion (2021)
