@@ -31,4 +31,4 @@ Their total funding from 2018-2021
 
 •	Total Asset $7.653 Billion (2021)
 
-According to  [Crunchbase(https://www.crunchbase.com/organization/social-finance/company_financials)] Sofi has raised a total of $3B in funding over 19 rounds. Their latest funding was on Jan 7th 2021 from a venture. The company is funded by 42 investors. ASAS capital, bracket Capital, RPM Ventures, SoftBank, GGV Capital, Manhattan Venture Partners, the Qatar Investment Company and many more.
+According to  [Crunchbase](https://www.crunchbase.com/organization/social-finance/company_financials) Sofi has raised a total of $3B in funding over 19 rounds. Their latest funding was on Jan 7th 2021 from a venture. The company is funded by 42 investors. ASAS capital, bracket Capital, RPM Ventures, SoftBank, GGV Capital, Manhattan Venture Partners, the Qatar Investment Company and many more.
