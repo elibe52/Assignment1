@@ -19,6 +19,8 @@ Four Principals
 •	Save for retirement and other Goals
 
 The Finance Company goal is to help individuals with their money, whose products provide tools needed to take control of their financial futures with exclusive member benefits at not cost.
+
+
 The company makes money through securitization, referral fees, interest earned on cash, sweep programs, whole loan sales and a lot more. The buyers in the securitization are institutions as well as other asset managers who buy premium upfront for the potential cash flows from the loan. 
 
 This move enables them access to funds at a very competitive rate, on par with large commercial banks with big balance sheet. SoFi can make money through this because investors trust the quality of their loans.
@@ -51,4 +53,6 @@ With the metric tools sofi was able to measure their members increase all the ti
 SoFi is experiencing growth on all aspects. Hoping to be the next big thing in the years to come, helping to create financial wealth. SoFi has built a better banking app than any other company including offering a 4.27 million financial service products to their members. Members are offered 1.03 million lending products and 3.24 million financial services products to help members improve their future.
 
 My advice to the company would be to continue to financé loan and create wealth for millennials. They should stop charging a high percentage on their interest. Their investment has a lot of beenifts frothei members. SoFi should also reduce their APR percentage on student loans.Instead of having a robo advisors, members would prefer speaking to a Live person that can quickly solve their problems. It would benefit the company because the millennial generation would get less student loan debt and able to pay off their loans as quickly as possible.This can also put modern banking & Loan companies out of business.  Instead of charging high percentage on loans & high interest. This can help SoFi increase their revenue and be one of the top Fintech company with the best loand and wealth management company.  It would bring us into a new age of crypto and bitcoin, where payment is made digitally. 
+ 
+ [](Our Leadership Team | SoFi)
  
