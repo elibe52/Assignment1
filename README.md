@@ -3,7 +3,7 @@ An American online personal **Finance Company**. The company introduces student 
 
 ![SoFi](https://user-images.githubusercontent.com/63883730/142770380-81b95c41-d951-4cb9-b067-828b96f6d287.png)
 In 2014, SoFi launches mortgages. In 2015, the company begins offering personal loans and becomes the first U.S based FinTech Company to receive a $1 billion funding round. As of January 2020, SoFi celebrated 1,000,000 members. 
-In August 2011 Company was founded by Stanford Business School with Anthony sitting as the CEO of SoFi and serves on its board of directors; Before joining SoFi, he served as chief operating officer of Twitter since November 2016, and as its chief financial officer when joining the company in July 2014. Chris Lapointe serves as SoFi’s CFO. He joined the comapny from Uber Technologies where he was the Global Head of FP&A, Corporate Finance and FinTech. With other members which includes Lauren Stafford Webb(CMO), Rob Lavet (General Counsel), Michelle Gil (EVP & Group Business Unit Leader) and others.
+In August 2011 Company was founded by Stanford Business School with Anthony sitting as the CEO of SoFi and serves on its board of directors; Before joining SoFi, he served as chief operating officer of Twitter since November 2016, and as its chief financial officer when joining the company in July 2014. Chris Lapointe serves as SoFi’s CFO. He joined the comapny from Uber Technologies where he was the Global Head of FP&A, Corporate Finance and FinTech. With other members which includes Lauren Stafford Webb(CMO), Rob Lavet (General Counsel), Michelle Gil (EVP & Group Business Unit Leader) [and others](Our Leadership Team | SoFi).
 
 
 The Company has built in place “The SoFi philosophy”
@@ -54,5 +54,5 @@ SoFi is experiencing growth on all aspects. Hoping to be the next big thing in t
 
 My advice to the company would be to continue to financé loan and create wealth for millennials. They should stop charging a high percentage on their interest. Their investment has a lot of beenifts frothei members. SoFi should also reduce their APR percentage on student loans.Instead of having a robo advisors, members would prefer speaking to a Live person that can quickly solve their problems. It would benefit the company because the millennial generation would get less student loan debt and able to pay off their loans as quickly as possible.This can also put modern banking & Loan companies out of business.  Instead of charging high percentage on loans & high interest. This can help SoFi increase their revenue and be one of the top Fintech company with the best loand and wealth management company.  It would bring us into a new age of crypto and bitcoin, where payment is made digitally. 
  
- [](Our Leadership Team | SoFi)
+
  
