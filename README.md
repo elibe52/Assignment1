@@ -55,5 +55,39 @@ SoFi is experiencing growth on all aspects. Hoping to be the next big thing in t
 
 My advice to the company would be to continue to financé loan and create wealth for millennials. They should stop charging a high percentage on their interest. Their investment has a lot of beenifts frothei members. SoFi should also reduce their APR percentage on student loans.Instead of having a robo advisors, members would prefer speaking to a Live person that can quickly solve their problems. It would benefit the company because the millennial generation would get less student loan debt and able to pay off their loans as quickly as possible.This can also put modern banking & Loan companies out of business.  Instead of charging high percentage on loans & high interest. This can help SoFi increase their revenue and be one of the top Fintech company with the best loand and wealth management company.  It would bring us into a new age of crypto and bitcoin, where payment is made digitally. 
  
+## Citations:
+
+*Sofi Philosophy*
+
+https://www.sofi.com/how-it-works
+
+*Sofi Funding Sources*
+
+https://www.crunchbase.com/organization/social-finance/company_financials
+
+*Smart Financial Choices*
+
+https://www.cnbc.com/2018/10/31/a-popular-student-debt-lender-is-accused-of-misleading-borrowers.html
+
+*Social Financing (SoFi)*
+
+https://www.sofi.com
+
+*Sofi Technologies*
+
+https://www.sofi.com/press/sofi-technologies-reports-second-quarter-2021-results
+
+*Sofi Intended Target*
+
+https://thefinancialbrand.com/65922/sofi-digital-banking-fintech-competition
+
+*Affirm After Pay*
+
+https://www.investopedia.com/terms/f/fintech.asp
+
+*Acquisition Metrics*
+
+https://www.benzinga.com/fintec/19/16/13911172/fintec-analytics-the-top-7-metrics-every-fintec-company-should-monitor
+
 
  
